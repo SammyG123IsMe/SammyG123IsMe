@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SammyG123IsMe
-- 👀 I’m interested in chaging my carrer from a reporting analyst to a role with more programming
+- 👀 I’m interested in chaging my career from a reporting analyst to a role with more programming
 - 🌱 I’m about to beging a Masters Degree in Software Developemnt (Part Time) at Queens University Belfast, alongside my full time job as a reporting analyst for a global law firm.  
 - 💞️ I’m looking for any online feedback during my time here, I need all the help i can get! 
 - 📫 Send me a message and say hi!
